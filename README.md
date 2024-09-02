@@ -2,7 +2,7 @@
 
 优云666跑路了吗？暂时没有。不过机场总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。下面是最新地址：
 
-永久官网：[juzicloud.net](https://xuv.cc/out/youyun666)
+永久官网：[youyun666.com](https://xuv.cc/out/youyun666)
 
 地址1：[https://youyun73.com](https://youyun73.com/auth/register?code=jIRv)
 
