@@ -4,9 +4,9 @@
 
 永久官网：[youyun666.com](https://xuv.cc/out/youyun666)
 
-地址1：[https://youyun88.xyz](https://youyun88.xyz/auth/register?code=jIRv)
+地址1：[https://youyun87.xyz](https://youyun87.xyz/auth/register?code=jIRv)
 
-地址2：[https://youyun99.xyz](https://youyun99.xyz/auth/register?code=jIRv)
+地址2：[https://youyun98.xyz](https://youyun98.xyz/auth/register?code=jIRv)
 
 [![优云666机场官网地址](youyun666_uxtt_20240902_153513.png)](https://xuv.cc/out/youyun666)
 
