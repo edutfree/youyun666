@@ -1,12 +1,12 @@
-# 优云666官网地址2025最新入口 + 限时优惠码
+# 优云666官网地址
 
 优云666跑路了吗？暂时没有。不过机场总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。下面是最新地址：
 
 永久官网：[youyun666.com](https://xuv.cc/out/youyun666)
 
-地址1：[https://youyun87.xyz](https://youyun87.xyz/auth/register?code=jIRv)
+地址1：[https://youyun52.xyz](https://youyun52.xyz/auth/register?code=jIRv)
 
-地址2：[https://youyun98.xyz](https://youyun98.xyz/auth/register?code=jIRv)
+地址2：[https://youyun57.xyz](https://youyun57.xyz/auth/register?code=jIRv)
 
 [![优云666机场官网地址](youyun666_uxtt_20240902_153513.png)](https://xuv.cc/out/youyun666)
 
