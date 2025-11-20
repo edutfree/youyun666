@@ -4,9 +4,9 @@
 
 永久官网：[youyun666.com](https://xuv.cc/out/youyun666)
 
-地址1：[https://youyun762.xyz](https://youyun762.xyz/auth/register?code=jIRv)
+地址1：[https://youyun6262.com](https://youyun6262.com/auth/register?code=jIRv)
 
-地址2：[https://youyun769.xyz](https://youyun769.xyz/auth/register?code=jIRv)
+地址2：[https://youyun6363.com](https://youyun6363.com/auth/register?code=jIRv)
 
 ---
 
