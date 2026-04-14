@@ -4,17 +4,15 @@
 
 永久官网：[youyun666.com](https://xuv.cc/out/youyun666)
 
-地址1：[youyun53.xyz](https://youyun53.xyz/auth/register?code=jIRv)
+地址1：[youyun53.xyz](https://youyun65.xyz/auth/register?code=jIRv)
 
 地址2：[youyun65.xyz](https://youyun65.xyz/auth/register?code=jIRv)
 
----
+## 优云666优惠码
 
-**温馨提示：任何服务均有跑路风险，请自行注意防范！**
+【优惠活动】
 
-**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
-
----
+优云666 2026包年7折优惠代码：[UU521](https://xuv.cc/out/youyun666)
 
 ## 简介
 
@@ -23,13 +21,6 @@
 支持SSR、V2ray节点，国内中转节点，解锁流媒体，CN2/BGP隧道中转和IPLC国际专线节点。
 
 支持支付宝、微信支付。
-
-## 优云666优惠码
-
-【优惠活动】
-
-优云666 2025包年7折优惠代码：[UU520](https://xuv.cc/out/youyun666)
-
 
 ## 优云666特色
 
