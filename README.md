@@ -4,9 +4,9 @@
 
 永久官网：[youyun666.com](https://xuv.cc/out/youyun666)
 
-地址1：[youyun53.xyz](https://youyun65.xyz/auth/register?code=jIRv)
+地址1：[youyun82.xyz](https://youyun82.xyz/auth/register?code=jIRv)
 
-地址2：[youyun65.xyz](https://youyun65.xyz/auth/register?code=jIRv)
+地址2：[youyun81.xyz](https://youyun81.xyz/auth/register?code=jIRv)
 
 ## 优云666优惠码
 
